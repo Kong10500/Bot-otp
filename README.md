@@ -1,6 +1,6 @@
 bypass OTP for worldwide  🧐 
 
-Bank's - 3D - Wallet - Crypto - Shopping - Working for all servies
+Bank's - 3D - Wallet - Crypto - Shopping - Working for all services
 
 📶  https://bypassbot.com 🛒🛒
 
